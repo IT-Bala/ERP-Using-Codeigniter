@@ -7,7 +7,7 @@ iv. Now run the project.
   ===============================================
 
                     THANK YOU :)
-      Let us know if any suggestions or queries : widelamp@yahoo.com
+      Let us know if any suggestions or queries : 32deva@gmail.com
 
   ===============================================
   
